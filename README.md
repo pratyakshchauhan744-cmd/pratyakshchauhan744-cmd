@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am working an ai company
+AI Automation That Cuts Costs & Scales Businesses | Helping Companies Grow Faster
 
 
 ## 🌐 Socials:
